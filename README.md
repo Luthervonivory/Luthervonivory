@@ -4,8 +4,7 @@
   
 ![](https://komarev.com/ghpvc/?username=Luthervonivory&color=blue)
 
-![image](![image](https://github.com/user-attachments/assets/cfc3d97d-745b-46d3-ad5e-68a57e647ab6)
-) 
+![image](![image](https://github.com/user-attachments/assets/cfc3d97d-745b-46d3-ad5e-68a57e647ab6)) 
 
 
 
