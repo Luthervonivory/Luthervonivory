@@ -4,4 +4,7 @@
   
 ![](https://komarev.com/ghpvc/?username=Luthervonivory&color=blue)
 
+![image]([https://discord.com/channels/1329951412439744544/1346143585908559943/1362750714098745485)) 
+
+
 
