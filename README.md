@@ -4,6 +4,4 @@
 ![](https://komarev.com/ghpvc/?username=Luthervonivory&color=blue)
 
 
-
-
 fixing . . .
