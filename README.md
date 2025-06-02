@@ -3,5 +3,5 @@
   
 ![](https://komarev.com/ghpvc/?username=Luthervonivory&color=blue)
 
-![lord of darkness](https://gifcity.carrd.co/assets/images/gallery14/e9b06d87.gif?v=d7271437)
+![image](https://github.com/user-attachments/assets/cc857b69-9437-4ce9-988d-a8c297115108)
 
