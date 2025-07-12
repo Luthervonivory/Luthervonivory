@@ -4,6 +4,4 @@
   
 ![](https://komarev.com/ghpvc/?username=Luthervonivory&color=blue)
 
-![](https://i.pinimg.com/1200x/f8/10/77/f810776425a1c45e34f2f21412cacbbe.jpg)
-
-me if you even car
+![](https://media1.tenor.com/m/0c3fKH1g_ZEAAAAd/golden-kamuy-vasily.gif)
