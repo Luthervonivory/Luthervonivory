@@ -4,4 +4,4 @@
   
 ![](https://komarev.com/ghpvc/?username=Luthervonivory&color=blue)
 
-![](https://i.pinimg.com/1200x/1f/3e/cf/1f3ecff3d16da7e3468c474d8ccb751f.jpg)
+![](https://i.pinimg.com/1200x/f8/10/77/f810776425a1c45e34f2f21412cacbbe.jpg)
