@@ -4,4 +4,4 @@
   
 ![](https://komarev.com/ghpvc/?username=Luthervonivory&color=blue)
 
-![](https://media1.tenor.com/m/0c3fKH1g_ZEAAAAd/golden-kamuy-vasily.gif)
+![](https://i.pinimg.com/1200x/4a/68/a6/4a68a6a52cee163cedb7f80bdae9915f.jpg)
