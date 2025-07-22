@@ -4,6 +4,8 @@
   
 ![](https://komarev.com/ghpvc/?username=Luthervonivory&color=blue)
 
+<img width="500" height="90" alt="image" src="https://github.com/user-attachments/assets/ea84e545-5446-49d3-97ef-4dca755b819c" />
+
 MIA OR LUTHER
 
 PANSEXUAL ' GENDERFLUID ! ISTP ⸝⸝⸝ YUMESHIP,,, OMNIVERT . HYPERSEXUAL ↓ FUJOSHI MAJOR NSFW UNLESS UNCOMFY ; NON-SHARING # MULITSHIPPER - EMOPHILIA . AUSTRALIAN WITH MALTA BLOOD - DIAGNOSED AUTISM + DEPRESSION VIRGO ; 04/09
@@ -20,7 +22,7 @@ SOMETIMES, i do go dry or have no intention of speaking, i fear its apart of my 
 
 P.S EMOPHILIA IS NOT A NAME FOR A FETISH, IT MEANS THAT I FALL INLOVE WAY TO EASILY.. sowwy >_<
 
-![](<img width="500" height="90" alt="image" src="https://github.com/user-attachments/assets/ea84e545-5446-49d3-97ef-4dca755b819c" />
+<img width="500" height="90" alt="image" src="https://github.com/user-attachments/assets/ea84e545-5446-49d3-97ef-4dca755b819c" />
 
 𐔌BASIC DNI CRITERIA # 14- 23+
 
@@ -28,7 +30,7 @@ LESBOY ANTI › COPIERS ™ DOUBLES ◟INSENSITIVE PPL ৎ
 
 PROSHIPPERS R GENERALLY FREE TO INT AS LONG THEY DONT SHIP IRL AND PUSH THEIR SHIPS ONTO MYSELF, AS THEY'RE STILL PEOPLE (i dont support of their ships but they still deserve a chance.)
 
-![](https://i.pinimg.com/1200x/d4/bd/a8/d4bda8b582a35cf725b9dee0a08a470e.jpg)
+<img width="500" height="90" alt="image" src="https://github.com/user-attachments/assets/ea84e545-5446-49d3-97ef-4dca755b819c" />
 
 GOLDEN KAMUY, TWISTED-WONDERLAND, DANGANRONPA, DEMON SLAYER, BNHA, JJBA, OHSHC, POKEMON, K-ON!, DEATH NOTE, YURI!! ON ICE, DARLING IN THE FRANXX, ACNH, MISS KOBAYASHIS DRAGON MAID, HIMOUTO! UMARU-CHAN, RDR2, LYCHEE LIGHT CLUB, STARS ALIGN, KOMI CANT COMMUNICATE, OVERWATCH, TF2, CRK, RANFREN, FASHION, HORROR ANALOGS, CLEANING, APPLES, FISHES, RIBBONS, FLOWERS, PUSHEEN, DELICIOUS IN DUNGEON, TOUHOU PROJECT, TIGERS, CHAINSAW MAN, MLP, REGRETEVATOR, LADY BUGS, BLUE EYE SAMURAI, ISAACWHY + MORE!!
 
