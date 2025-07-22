@@ -22,7 +22,7 @@ SOMETIMES, i do go dry or have no intention of speaking, i fear its apart of my 
 
 P.S EMOPHILIA IS NOT A NAME FOR A FETISH, IT MEANS THAT I FALL INLOVE WAY TO EASILY.. sowwy >_<
 
-<img width="230" height="40" alt="image" src="https://github.com/user-attachments/assets/10ecbdd5-dd5a-4f3a-b0a7-cd541423264e" />
+<img width="500" height="90" alt="image" src="https://github.com/user-attachments/assets/10ecbdd5-dd5a-4f3a-b0a7-cd541423264e" />
 
 𐔌BASIC DNI CRITERIA # 14- 23+
 
