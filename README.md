@@ -40,4 +40,6 @@ GOLDEN KAMUY, TWISTED-WONDERLAND, DANGANRONPA, DEMON SLAYER, BNHA, JJBA, OHSHC, 
 
 <img width="500" height="90" alt="image" src="https://github.com/user-attachments/assets/ea84e545-5446-49d3-97ef-4dca755b819c" />
 
+https://gimic.straw.page
+
 ![](https://i.pinimg.com/1200x/d4/bd/a8/d4bda8b582a35cf725b9dee0a08a470e.jpg)
