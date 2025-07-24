@@ -1,4 +1,4 @@
-
+I only follow back people i can actually follow . . so i will remove your follow if i cant follow back 💧
 
 
 
