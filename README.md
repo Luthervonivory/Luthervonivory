@@ -1,10 +1,12 @@
-I only follow back people i can actually follow . . so i will remove your follow if i cant follow back 💧
 
 
 
 <div align="center">
   
 ![](https://komarev.com/ghpvc/?username=Luthervonivory&color=blue)
+
+I only follow back people i can actually follow . . so i will remove your follow if i cant follow back 💧
+
 
 <img width="500" height="90" alt="image" src="https://github.com/user-attachments/assets/ea84e545-5446-49d3-97ef-4dca755b819c" />
 
