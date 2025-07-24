@@ -24,6 +24,8 @@ I SHOW MY AFFECTION BY BEING AGRESSIVE HENCE ME SAYING "PUNCHES" "BITES" "BEATS/
 
 SOMETIMES, i do go dry or have no intention of speaking, i fear its apart of my depression. I will speak for a couple of days then i just want to stay silent. Please dont take it by heart.
 
+i will move if im being covered, not because i have TD/TT its because i simply enjoy seeing my skin
+
 P.S EMOPHILIA IS NOT A NAME FOR A FETISH, IT MEANS THAT I FALL INLOVE WAY TO EASILY.. sowwy >_<
 
 <img width="500" height="90" alt="image" src="https://github.com/user-attachments/assets/10ecbdd5-dd5a-4f3a-b0a7-cd541423264e" />
