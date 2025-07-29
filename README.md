@@ -46,11 +46,17 @@ GOLDEN KAMUY, TWISTED-WONDERLAND, DANGANRONPA, DEMON SLAYER, BNHA, JJBA, OHSHC, 
 
 MY FAVOURITES/YUMESHIPS
 Sanemi Shinazugawa . Demon Slayer 
+
 Hyakonosuke Ogata . Golden Kamuy
+
 Mick Mundy (Sniper) . Team Fortress 2
+
 Leona Kingscholar . TWISTED-WONDERLAND
+
 Mondo Oowda . Danganronpa: Trigger Happy Havoc
+
 Luther Von Ivory . Ranfren
+
 Joseph Joestar . JoJo's Bizarre Adventure
 
 
