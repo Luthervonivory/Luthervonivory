@@ -10,5 +10,3 @@
 
 
 
-https://gimic.straw.page
-
